@@ -1,1 +1,1 @@
-Come and see my GitHub Profile at (https://github.com/Skrobiwan)
+Come and see my Profile omn [GitHub](https://github.com/Skrobiwan)
